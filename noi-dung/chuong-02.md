@@ -1,8 +1,4 @@
-## Chương 1: Phương pháp dễ dàng
-
-Tuyệt vời! Dựa trên đoạn trích từ "EasyPeasy Way to Quit Porn", tôi sẽ mở rộng phần giới thiệu về phương pháp "Easyway" trong bối cảnh thoát khỏi cơn nghiện thức ăn rác, tập trung vào việc loại bỏ nỗi sợ hãi và thay đổi nhận thức:
-
-**Phương Pháp "Easyway": Không Phải Cố Gắng, Mà Là Hiểu Biết**
+## Chương 2: Phương pháp dễ dàng
 
 Phương pháp "Easyway" không yêu cầu bạn phải "từ bỏ" hay "cố gắng". Nó không phải là một cuộc chiến chống lại bản thân, mà là một hành trình khám phá sự thật. Nhiều người không hoàn thành cuốn sách vì họ cảm thấy mình phải từ bỏ một thứ gì đó, họ sợ hãi sự thay đổi. Nhưng hãy nhìn nhận vấn đề một cách khác: bạn có gì để mất? Nếu bạn không dừng lại sau khi đọc xong cuốn sách, bạn cũng không tệ hơn so với hiện tại. Đây là một canh bạc Pascal, một canh bạc mà bạn không có gì để mất và có cơ hội lớn để đạt được những lợi ích to lớn.
 
