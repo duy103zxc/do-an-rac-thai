@@ -34,8 +34,19 @@ Nhưng cá nhân mình chưa đọc, và cũng muốn viết cuốn sách này t
 - [Người ăn "thi thoảng"](noi-dung/chuong-16.md)
 - [Mội thói quen xã hội](noi-dung/chuong-17.md)
 - [Thời điểm](noi-dung/chuong-18.md)
-- Liệu ta có bỏ lỡ gì không?
-- Khai sáng
+- [Liệu ta có bỏ lỡ gì không?](noi-dung/chuong-19.md)
+- [Tránh những phần thưởng giả](noi-dung/chuong-20.md)
+- [Phương pháp dễ dàng](noi-dung/chuong-21.md)
+- [Quá trình thoát nghiện](noi-dung/chuong-22.md)
+- [Chỉ một miếng nhỏ](noi-dung/chuong-23.md)
+- [Liệu quá trình này có khó hơn với tôi?](noi-dung/chuong-24.md)
+- [Hàng thay thế](noi-dung/chuong-25.md)
+- [Có nên tránh các tình huống cám dỗ?](noi-dung/chuong-26.md)
+- [Khai sáng](noi-dung/chuong-27.md)
+- [Lần cuối](noi-dung/chuong-28.md)
+- [Phản hồi](noi-dung/chuong-29.md)
+- [Cứu giúp kẻ gặp nạn](noi-dung/chuong-30.md)
+- [Lời khuyên cho người-không-nghiện](noi-dung/chuong-31.md)
 
 ### Credit
 
